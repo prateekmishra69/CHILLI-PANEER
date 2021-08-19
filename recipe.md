@@ -1,0 +1,2 @@
+Step 1 Chop all the veggies in cubed form
+To prepare this yummy appetizer recipe, take a chopping board and chop the paneer, onion and bell peppers in small cubes. Wash the cubed bell peppers in running water and keep them aside. Now, peel ginger finely chop it in a small bowl. Then cut the green chillies into strips or you can also slice them in half.
